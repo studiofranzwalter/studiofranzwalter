@@ -1,5 +1,7 @@
 Welcome.
 
-[Franz Walter](https://franzwalter.com) is a photographer, designer, producer, word-smith. He loves giving form to ideas as much as exploring the mountains and rivers. 
+[Franz Walter](https://franzwalter.com) is a photographer, filmmaker, designer. 
+Seeing stories, I give form to ideas.
 
-For collaborations or other inquiries say hi: mail@franzwalter.com  
+For creative collaborations or other inquiries say hi:
+mail@franzwalter.com  
