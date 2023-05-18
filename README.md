@@ -1,4 +1,4 @@
-Welcome.\
+Welcome.
 
 [Franz Walter](https://franzwalter.com) is a photographer, filmmaker, designer.\
 Seeing stories, I give form to ideas.
